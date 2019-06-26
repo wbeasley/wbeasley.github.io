@@ -1,1 +1,0 @@
-# wbeasley.github.io
